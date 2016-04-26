@@ -1,4 +1,4 @@
-[video](https://www.youtube.com/watch?v=7SY119Eib1g "Who Should Have Right To Die")
+[Who Should Have Right To Die](https://www.youtube.com/watch?v=7SY119Eib1g)
 
 * "Over himself, over his own body and mind, the individual is sovereign" - John Stuart Mill
 * personal autonomy has become synonymous with dignity, to allow for mercy deaths
